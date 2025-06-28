@@ -1,4 +1,4 @@
-### 👋 Hi, I’m Atif (@Daddybaddy7)  
+### 👋 Hi, I’m Atif (@SpectAtif)  
 
 - 👀 I’m interested in:  
   AI, automation, and building online businesses.  
